@@ -1,4 +1,4 @@
-#  
+#  oil empire Script smart is the best oil empire Script, featuring no clip and undetectable. Safe and powerful for all your needs.
 
 
 
